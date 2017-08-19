@@ -1,0 +1,2 @@
+# kuciangganas
+i like samangko
